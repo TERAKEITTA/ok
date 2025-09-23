@@ -19,4 +19,9 @@ $${\color{blue}" \ scary? \ my \ god,\ you're \ divine. \ "}$$
 
 <div align="center">
 
-[![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "atabook")](https://gentlevows.atabook.org/) ‎   ‎ ‎‎‎ ‎‎‎‎‎ ‎‎ ‎ ‎‎[![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "?")](https://placeholderlinkhere/) ‎   ‎ ‎‎‎ ‎‎‎‎‎ ‎‎ ‎ [![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "?")](https://placeholderlinkhere/) ‎   ‎ ‎‎‎ ‎‎‎‎‎ ‎‎ ‎ [![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "?")](https://placeholderlinkhere/)
+[![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "atabook")](https://gentlevows.atabook.org/) ‎   ‎ ‎‎‎ ‎‎‎‎‎ ‎‎ ‎ ‎‎[![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "straw")](https://keidenosine.straw.page/) ‎   ‎ ‎‎‎ ‎‎‎‎‎ ‎‎ ‎ [![bruh](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "guns.lol")](https://guns.lol/terrierki)
+
+<p align="center">
+
+$${\color{blue}hover \ on \ the \ buttons \ !}$$
+</p>
